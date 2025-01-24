@@ -1,2 +1,2 @@
 # John-
-smart enthusiastic talented 
+student of fisat
